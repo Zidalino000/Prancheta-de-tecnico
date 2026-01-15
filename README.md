@@ -1,1 +1,0 @@
-# Prancheta-de-tecnico
